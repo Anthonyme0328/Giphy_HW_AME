@@ -1,1 +1,0 @@
-# Giphy_HW_AME
